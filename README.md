@@ -1,1 +1,0 @@
-# josh-hadley.github.io
